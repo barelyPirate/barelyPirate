@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @barelyPirate
 - 👀 I’m interested in Helping and Asking for Help
 - 🌱 I want to be Robin Hood
-- 😄 Pronouns: Straight Sigma Female
+- 😄 Pronouns: Muscle Mommy
 
 <!---
 barelyPirate/barelyPirate is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
